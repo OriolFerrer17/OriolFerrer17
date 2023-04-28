@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @OriolFerrer17
+- 👀 I’m interested in  OpenaiGPT
